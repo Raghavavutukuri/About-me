@@ -1,4 +1,4 @@
-># Harshith Venkataraghava Vutukur
+># Harshith Venkataraghava Vutukuri
 **Email : harshithvutukuri@gmail.com** <br/>
 **Phno :** 8125527279<br/>
 **Linkedin :**[ RaghavaVutukuri](https://www.linkedin.com/in/harshith-venkataraghava-vutukuri/)
